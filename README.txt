@@ -1,4 +1,4 @@
-AEU Revision 2025 – Quiz Game
+AEU Revision game 2025
 
 HOW TO USE:
 
